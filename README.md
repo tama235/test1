@@ -3,5 +3,3 @@
 annpannmann
 
 baikinnmann
-
-meronnpannnatyann
